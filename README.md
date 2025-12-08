@@ -12,6 +12,10 @@ Drop Pop Candy [(MediaFire)](https://mediafire.com/?eo53ht697ru2bjm/DropPopCandy
 
 ＋♂ (Plus Boy) [MP3](http://mediafire.com/?gesxfk0o0dbia0o/pb.mp3)
 
+## evilCiD
+
+Luvvatory [Mediafire](http://mediafire.com/?908u325vo60aciu)
+
 
 ## Some edit sources
 [Reddit top 125](https://www.reddit.com/r/vita/comments/3em58j/project_diva_2nd_f_edits_top_125_ranking_na/)
