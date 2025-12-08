@@ -14,4 +14,4 @@ Drop Pop Candy [(MediaFire)](https://mediafire.com/?eo53ht697ru2bjm/DropPopCandy
 
 
 ## Some edit sources
-[Reddit](https://www.reddit.com/r/vita/comments/3em58j/project_diva_2nd_f_edits_top_125_ranking_na/)
+[Reddit top 125](https://www.reddit.com/r/vita/comments/3em58j/project_diva_2nd_f_edits_top_125_ranking_na/)
